@@ -1,1 +1,1 @@
-# t-rk-n-k-rtten-ba-ka-dostu-yoktur
+# turkun kurten baska dostu yoktur
