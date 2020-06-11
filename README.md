@@ -1,0 +1,1 @@
+# t-rk-n-k-rtten-ba-ka-dostu-yoktur
